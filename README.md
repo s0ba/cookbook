@@ -211,3 +211,11 @@ Once the chicken is cooked and the Green Tea brewed. Add a Teaspoon Miso Paste t
 Now add all the ingredients into the bowl and cover. Wait  2 - 3 mins or until just cool enough to eat then enjoy!
 
 - Add soy sauce to taste.
+
+##### Original recipe modified & pinched from:
+
+http://www.cookforyourlife.org/recipes/green-tea-over-rice-ochazuke/
+
+Thanks Ann!
+
+---
